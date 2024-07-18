@@ -1,6 +1,4 @@
-# ¿Dónde puedes encontrarme?
-
-Aquí puedes encontrarme en diversas plataformas:
+# 👋🏻 Mis redes sociales 
 
 - [Plataforma de cursos](https://productomania.io)
 - [Youtube](https://www.youtube.com/@productomania)
